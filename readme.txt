@@ -1,3 +1,3 @@
-Thanks to :
+Created by :
 
 Rych Emrycho
